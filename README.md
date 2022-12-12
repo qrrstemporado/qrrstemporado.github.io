@@ -1,0 +1,1 @@
+# qrrstemporado.github.io
